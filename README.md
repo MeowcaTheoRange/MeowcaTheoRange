@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on literally nothing
 - 📫 How to reach me 
 
->[newgrounds](meowcatheorange.newgrounds.com)
+>[newgrounds](https://meowcatheorange.newgrounds.com)
 >
->[repl.it](repl.it/@MeowcaTheoRange)
+>[repl.it](https://repl.it/@MeowcaTheoRange)
 >
->[twitter](twitter.com/TheoMelodio)
+>[twitter](https://twitter.com/TheoMelodio)
