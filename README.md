@@ -9,5 +9,3 @@
 >[gaybanana](https://gamebanana.com/members/2029036)
 >
 >[repl.it](https://repl.it/@MeowcaTheoRange)
->
->[twitter](https://twitter.com/TheoMelodio)
